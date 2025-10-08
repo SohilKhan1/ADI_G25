@@ -1,0 +1,2 @@
+https://1drv.ms/o/c/1755df007dd2287e/Eheog5oBK69FoXDBcS87d6kBIfSeztMSvrbGVent_XDUVA?wd=target%28ADI_G23.one%7CE21A2DCC-6429-4A59-8F18-3CBF131804CA%2F%29&wdsectionfileid=1755DF007DD2287E!see7d0853064e4d179bca577265f6c702
+onenote:https://d.docs.live.net/1755DF007DD2287E/Documents/Onenote/ADI_G23.one#section-id={E21A2DCC-6429-4A59-8F18-3CBF131804CA}&end
